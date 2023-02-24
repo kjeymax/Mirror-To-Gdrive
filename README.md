@@ -4,7 +4,7 @@
 <br>
 ### Tutorial
 
-[![](https://telegra.ph/file/a016cb998df317e377336.jpg)](https://www.dailymotion.com/video/x8il26p)
+[![](https://telegra.ph/file/a016cb998df317e377336.jpg)](https://www.hitechlk.com/2023/02/how-to-download-torrent-without.html)
 
 
 _⚠ Always try to use magnet links to download torrent._
