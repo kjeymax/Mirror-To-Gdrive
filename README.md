@@ -5,7 +5,7 @@
 
 ### Tutorial
 
-[![](https://telegra.ph/file/a016cb998df317e377336.jpg)](https://youtu.be/LerEL4i6zCA)
+[![](https://telegra.ph/file/a016cb998df317e377336.jpg)](https://www.dailymotion.com/video/x8il26p)
 
 
 _⚠ Always try to use magnet links to download torrent._
